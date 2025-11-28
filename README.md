@@ -17,11 +17,11 @@ Fer ppl we arent friends with + general boundaries are,
 - please do not kiss/boop us without asking
 - same with cuddling/hiding
 - pls do not cover our pony/sit on top of us
-- +  if you do accidentally pls move when we ask
+  -  if you do accidentally pls move when we ask
 - w2i preferred as we are more often than not semi offtab/afk
 - don't send us friend requests without asking
-- +  obvs dont get heated if we don't accept
-- ++  don't try and send another after we've denied it or we'll block
+  -  obvs dont get heated if we don't accept
+  -  don't try and send another after we've denied it or we'll block
   
 this should really go without saying but don't try and debate us on our identities or fakeclaim us unless you want a debate. like if you say something we are Going to say something back.</br>
 oh and also we don't care enough about shipcourse to debate anyone on it so we'll probably just ignore you or shut you down if you try to start a debate on that.
