@@ -1,9 +1,9 @@
 ## about us ♥︎
 ***
-  we r an endogenic plural/system</br>
-+  we have slight phantom sense and it differs per headmate  
-++  we use contradictory lables collectively  
-+++  we are anti harassment over fiction.
+>  we r an endogenic plural/system</br>
+> +  we have slight phantom sense and it differs per headmate  
+> ++  we use contradictory lables collectively  
+> +++  we are anti harassment over fiction.
 
 prerequisits to being friends :
 - you gotta be normal about && okay with the above ⤴︎⤴︎
