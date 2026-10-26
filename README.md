@@ -7,7 +7,7 @@
 
 prerequisits to being friends :
 - you gotta be normal about && okay with the above ⤴︎⤴︎
-- you gotta be 16 - 22 yrs old as we are bodily 18
+- you gotta be 16 - 22 yrs old as we are bodily 19
 
 uh yeah i think thats all</br>
   we are generally pretty chill, we like cuddling if we know you, 
